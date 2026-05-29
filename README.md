@@ -11,7 +11,7 @@
 *   **最新入口**：[https://mrcg8.com](https://mrcg8.com)
     *（访问指南：常规网络即可访问，建议使用时关闭 VPN，并确保手机流量或 Wi-Fi 畅通。若个别地区受运营商限制导致无法打开，请尝试更换其他浏览器。）*
 *   **永久主页**：[https://mrcg8.com](https://mrcg8.com)
-*   **永久入口**：[https://mrcg8.com](https://mrcg8.com)
+*   **永久入口**：[https://mrcgw1.com](https://mrcgw1.com)
     *（访问指南：永久主页及永久入口需保持稳定的全球网络环境，需使用科学上网方式访问。）*
 
 ### 📱 官方社群与自媒体
