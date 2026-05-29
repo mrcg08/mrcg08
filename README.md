@@ -19,7 +19,7 @@
 *   **Twitter (X) 官方账号**：[https://x.com/mrcg9527](https://x.com/mrcg9527)
 
 ### 📬 防失联与最新地址获取
-*   **GitLab 备用导航页**：[https://gitlab.com/mrcg08](https://gitlab.com/mrcg08)（点击查看每日吃瓜网最新地址）
+*   **GitLab 备用导航页**：[https://github.com/mrcg08](https://github.com/mrcg08)（点击查看每日吃瓜网最新地址）
 *   **新地址自动获取邮箱**：[mrcg08@proton.me](mailto:mrcg08@proton.me)
     *（说明：发送任意内容至该邮箱，系统将自动回复最新可用网址。若获取地址后仍遇访问障碍，可截图再次回复邮件，我们的技术支持将第一时间了解情况并协助解决，保障您的顺畅体验。）*
 
