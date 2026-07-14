@@ -15,7 +15,7 @@
     *（访问指南：永久主页及永久入口需保持稳定的全球网络环境，需使用科学上网方式访问。）*
 
 ### 📱 官方社群与自媒体
-*   **Telegram 官方群组**：[https://t.me/+H8CPq4bGMeIzY2E1](https://t.me/+H8CPq4bGMeIzY2E1)
+*   **Telegram 官方群组**：[https://telegram.me/+H8CPq4bGMeIzY2E1](https://telegram.me/+H8CPq4bGMeIzY2E1)
 *   **Twitter (X) 官方账号**：[https://x.com/mrcg9527](https://x.com/mrcg9527)
 
 ### 📬 防失联与最新地址获取
@@ -28,5 +28,5 @@
 ## ✍️ 征稿合作
 欢迎提供优质的一手资讯与热点线索：
 *   **邮箱投稿**：[mrcg08@proton.me](mailto:mrcg08@proton.me)
-*   **电报 (Telegram) 投稿**：[https://t.me/nanfeng879](https://t.me/nanfeng879)
+*   **电报 (Telegram) 投稿**：[https://telegram.me/nanfeng879](https://telegram.me/nanfeng879)
 *   *（注：如需通过微信或 QQ 进行投稿，请先通过上述邮箱或电报与我们取得联系，随后索要具体账号。）*
