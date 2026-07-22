@@ -28,5 +28,5 @@
 ## ✍️ 征稿合作
 欢迎提供优质的一手资讯与热点线索：
 *   **邮箱投稿**：[mrcg08@proton.me](mailto:mrcg08@proton.me)
-*   **电报 (Telegram) 投稿**：[https://telegram.me/nanfeng879](https://telegram.me/nanfeng879)
+*   **电报 (Telegram) 投稿**：[https://telegram.me/hhuo1888](https://telegram.me/hhuo1888)
 *   *（注：如需通过微信或 QQ 进行投稿，请先通过上述邮箱或电报与我们取得联系，随后索要具体账号。）*
