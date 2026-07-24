@@ -16,7 +16,6 @@
 
 ### 📱 官方社群与自媒体
 *   **Telegram 官方群组**：[https://telegram.me/+H8CPq4bGMeIzY2E1](https://telegram.me/+H8CPq4bGMeIzY2E1)
-*   **Twitter (X) 官方账号**：[https://x.com/mrcg0888](https://x.com/mrcg0888)
 
 ### 📬 防失联与最新地址获取
 *   **GitLab 备用导航页**：[https://github.com/mrcg08](https://github.com/mrcg08)（点击查看每日吃瓜网最新地址）
