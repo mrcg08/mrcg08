@@ -1,5 +1,5 @@
 🔥 每日吃瓜官方最新地址 & 导航页 | MrChigua Official Access Page
-本 GitHub 页面用于发布 每日吃瓜 最新可用入口、App 下载地址、官方社群与资源频道。
+本 GitHub 页面用于发布 每日吃瓜 最新可用入口、官方社群与资源频道。
 
 This GitHub profile is maintained to publish the latest working links, official app download, and verified community channels for MrChigua.
 
