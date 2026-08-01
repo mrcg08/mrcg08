@@ -1,31 +1,67 @@
-# 每日吃瓜 - 官方导航与最新访问地址直达
+🔥 每日吃瓜官方最新地址 & 导航页 | MrChigua Official Access Page
+本 GitHub 页面用于发布 每日吃瓜 最新可用入口、App 下载地址、官方社群与资源频道。
 
-## 📝 平台简介
-官方导航页面为您提供每日吃瓜的最新地址与访问指引，方便您快速进入站点，浏览全网热门社交资讯。无论是影视娱乐动态、网红流行文化、校园热议事件还是海外热门话题，都能通过本页面一键直达，确保您实时掌握前沿社交动态与热门资讯更新。
+This GitHub profile is maintained to publish the latest working links, official app download, and verified community channels for MrChigua.
 
----
+👉 建议收藏 / Bookmark this page to avoid losing access
 
-## 🔗 访问导航
+🌐 最新访问入口 | Latest Website Access
+✅ 免翻墙入口 | No VPN Required
 
-### 🌐 站点直达入口
-*   **最新入口**：[https://mrcg8.qjgulvcsg.cc/](https://mrcg8.qjgulvcsg.cc/)
-    *（访问指南：常规网络即可访问，建议使用时关闭 VPN，并确保手机流量或 Wi-Fi 畅通。若个别地区受运营商限制导致无法打开，请尝试更换其他浏览器。）*
-*   **永久主页**：[https://mrcg8.com](https://mrcg8.com)
-*   **永久中转**：[https://mrcgw3.com](https://mrcgw3.com)
-    *（访问指南：永久主页及永久入口需保持稳定的全球网络环境，需使用科学上网方式访问。）*
+https://mrcg8.qjgulvcsg.cc/
 
-### 📱 官方社群与自媒体
-*   **Telegram 官方群组**：[https://telegram.me/+H8CPq4bGMeIzY2E1](https://telegram.me/+H8CPq4bGMeIzY2E1)
+https://mrcg8.com
 
-### 📬 防失联与最新地址获取
-*   **GitLab 备用导航页**：[https://github.com/mrcg08](https://github.com/mrcg08)（点击查看每日吃瓜网最新地址）
-*   **新地址自动获取邮箱**：[mrcg08@proton.me](mailto:mrcg08@proton.me)
-    *（说明：发送任意内容至该邮箱，系统将自动回复最新可用网址。若获取地址后仍遇访问障碍，可截图再次回复邮件，我们的技术支持将第一时间了解情况并协助解决，保障您的顺畅体验。）*
+https://mrcgw3.com 
 
----
+📢 官方社交媒体 | Official Social Media
+官方 Twitter (X)：
 
-## ✍️ 征稿合作
-欢迎提供优质的一手资讯与热点线索：
-*   **邮箱投稿**：[mrcg08@proton.me](mailto:mrcg08@proton.me)
-*   **电报 (Telegram) 投稿**：[https://telegram.me/hhuo1888](https://telegram.me/hhuo1888)
-*   *（注：如需通过微信或 QQ 进行投稿，请先通过上述邮箱或电报与我们取得联系，随后索要具体账号。）*
+https://x.com/lostinmyidols
+
+官方 Telegram 群：
+
+https://telegram.me/mrcg659
+
+📦 Telegram 资源 & 社群 | Telegram Resources & Community
+官方 TG 频道 | Official Resource Channel
+
+https://telegram.me/+mN8Qe8iMqe03ZDRl
+
+商务对接外事号 | Business Contact TG
+
+https://telegram.me/hhuo1888
+
+🤝 商务合作 | Business Cooperation
+商务合作专属链接 / Business Cooperation Link
+
+https://u5m8n.3bidl4-t1t1.icu?channel=HDXY001
+
+🔁 最新地址获取方式（推荐）| How to Get the Latest Address
+📧 自动回复邮箱 | Auto-Reply Email
+发送任意内容至以下邮箱，即可自动获取最新地址：
+Send any message to the email below to receive the latest working address automatically:
+
+mrcg08@proton.me
+
+📌 提示： 如返回地址无法打开，请附带截图回复邮箱，方便管理员第一时间处理。
+If the returned link does not work, please reply with a screenshot so the admin can update it quickly.
+
+✉️ 免费投稿 & 联系我们 | Free Submission & Contact
+收发邮件 & 投稿 | Email Submission
+
+mrcg08@proton.me
+
+🛠️ 使用说明 & 常见问题 | Troubleshooting Guide
+访问地址请确认包含 https://
+
+若网站或视频无法加载：
+
+关闭 VPN
+
+切换网络
+
+更换浏览器（推荐 / Recommended）：Chrome, Alook, Edge, Yandex
+
+如以上方法均无效，请通过邮箱或 Telegram 联系管理员。
+If all methods fail, please contact the admin via email or Telegram.
