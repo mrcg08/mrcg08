@@ -8,11 +8,11 @@ This GitHub profile is maintained to publish the latest working links, official 
 🌐 最新访问入口 | Latest Website Access
 ✅ 免翻墙入口 | No VPN Required
 
-[https://mrcg8.qjgulvcsg.cc/](https://d17gdh8n7710ts.cloudfront.net/)
+永久固定直连：https://d17gdh8n7710ts.cloudfront.net
 
-https://mrcg8.com
+永久首页：https://mrcg8.com
 
-https://mrcg4.com 
+永久中转：https://mrcg4.com 
 
 📢 官方社交媒体 | Official Social Media
 官方 Twitter (X)：
