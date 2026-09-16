@@ -8,11 +8,11 @@ This GitHub profile is maintained to publish the latest working links, official 
 🌐 最新访问入口 | Latest Website Access
 ✅ 免翻墙入口 | No VPN Required
 
-https://mrcg8.qjgulvcsg.cc/
+[https://mrcg8.qjgulvcsg.cc/](https://d17gdh8n7710ts.cloudfront.net/)
 
 https://mrcg8.com
 
-https://mrcgw3.com 
+https://mrcg4.com 
 
 📢 官方社交媒体 | Official Social Media
 官方 Twitter (X)：
@@ -21,16 +21,16 @@ https://x.com/lostinmyidols
 
 官方 Telegram 群：
 
-https://telegram.me/mrcg659
+https://telegram.me/mrcg9988
 
 📦 Telegram 资源 & 社群 | Telegram Resources & Community
 官方 TG 频道 | Official Resource Channel
 
-https://telegram.me/+mN8Qe8iMqe03ZDRl
+https://telegram.me/mrcg19988
 
 商务对接外事号 | Business Contact TG
 
-https://telegram.me/hhuo1888
+https://telegram.me/huohuo1888
 
 🤝 商务合作 | Business Cooperation
 商务合作专属链接 / Business Cooperation Link
@@ -42,7 +42,7 @@ https://u5m8n.3bidl4-t1t1.icu?channel=HDXY001
 发送任意内容至以下邮箱，即可自动获取最新地址：
 Send any message to the email below to receive the latest working address automatically:
 
-mrcg08@proton.me
+mrcg08@pm.me
 
 📌 提示： 如返回地址无法打开，请附带截图回复邮箱，方便管理员第一时间处理。
 If the returned link does not work, please reply with a screenshot so the admin can update it quickly.
@@ -50,7 +50,7 @@ If the returned link does not work, please reply with a screenshot so the admin 
 ✉️ 免费投稿 & 联系我们 | Free Submission & Contact
 收发邮件 & 投稿 | Email Submission
 
-mrcg08@proton.me
+mrcg08@pm.me
 
 🛠️ 使用说明 & 常见问题 | Troubleshooting Guide
 访问地址请确认包含 https://
