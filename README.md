@@ -12,7 +12,7 @@ This GitHub profile is maintained to publish the latest working links, official 
 
 永久首页：https://mrcg8.com
 
-永久中转：https://mrcg5.com 
+永久中转：https://mrcg6.com 
 
 📢 官方社交媒体 | Official Social Media
 官方 Twitter (X)：
