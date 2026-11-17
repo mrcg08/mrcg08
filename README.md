@@ -28,14 +28,11 @@ https://telegram.me/mrcg9988
 
 https://telegram.me/mrcg19988
 
-商务对接外事号 | Business Contact TG
-
-https://telegram.me/huohuo1888
-
 🤝 商务合作 | Business Cooperation
 商务合作专属链接 / Business Cooperation Link
 
-https://u5m8n.3bidl4-t1t1.icu?channel=HDXY001
+https://telegram.me/cggf91_66
+
 
 🔁 最新地址获取方式（推荐）| How to Get the Latest Address
 📧 自动回复邮箱 | Auto-Reply Email
